@@ -7,3 +7,7 @@
 ## Rahmân ve Rahîm
 
 Kur'an'da Rahmân ve Rahîm kavramlarının açık tanımları bulunmaz.
+
+## Kur'an ve mushaflar
+
+Farklı mushaflar bulunmaktadır.
