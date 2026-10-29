@@ -1,6 +1,6 @@
 # Gül kokulu Muhammed’den günümüzün kokuşmuş İslam dünyasının insanlarına
 
-[Ana metin: Gül kokulu Muhammed’den günümüzün kokuşmuş İslam dünyasının insanlarına](muhammed-the-rose.md)
+[Ana metin: Gül kokulu Muhammed’den günümüzün kokuşmuş İslam dünyasının insanlarına](muhammad-the-rose.md)
 
 ## Kaynaklar
 
