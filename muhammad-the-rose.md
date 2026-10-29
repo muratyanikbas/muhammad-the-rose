@@ -4,6 +4,10 @@
 
 ## Başlangıç
 
+## Muhammed'in hayat hikâyesi
+
+Muhammed'in hayat hikâyesi eksiksiz bir şekilde günümüze aktarılmamıştır.
+
 ## Rahmân ve Rahîm
 
 Kur'an'da Rahmân ve Rahîm kavramlarının açık tanımları bulunmaz.
