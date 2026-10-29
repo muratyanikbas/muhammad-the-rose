@@ -27,3 +27,5 @@ Sonuç: Kur’an dil açısından kullanışsızdır.
 ## Mekke
 
 Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir.
+
+## Allah'ın konunun tamamına ilişkin açığa çıkardığı bilinmeyen gerçekler:
