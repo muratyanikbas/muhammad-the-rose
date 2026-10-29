@@ -6,7 +6,7 @@
 
 ## Muhammed'in hayat hikâyesi
 
-Muhammed'in hayat hikâyesi eksiksiz bir şekilde günümüze aktarılmamıştır.
+Muhammed'in hayat hikâyesi eksiksiz bir şekilde günümüze aktarılmamıştır. Aktarılan bilgiler, gerçekte ne yaşandığı ve Allah tarafından elçi olarak görevlendirilmeden önce Muhammed’in gerçekte nasıl biri olduğu konusunda bir kanaat oluşturmak için yeterli bir temel sunmuyor.
 
 ## Rahmân ve Rahîm
 
