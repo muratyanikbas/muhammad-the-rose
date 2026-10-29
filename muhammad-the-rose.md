@@ -14,6 +14,8 @@ Kur'an'da Rahmân ve Rahîm kavramlarının açık tanımları bulunmaz.
 
 ## Kur'an ve mushaflar
 
+Kur'an kelimesinin kök anlamı nedir?
+
 Farklı mushaflar bulunmaktadır.
 
 Muhammed ismi Kur’an’da yalnızca dört kez geçer.
