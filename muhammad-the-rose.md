@@ -21,3 +21,7 @@ Muhammed ismi Kur’an’da yalnızca dört kez geçer.
 Anlamı güvenilir biçimde belirlenemeyen metinlerden hareketle Allah hakkında tasavvur oluşturmamak gerekir.
 
 Sonuç: Kur’an dil açısından kullanışsızdır.
+
+## Mekke
+
+Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir.
