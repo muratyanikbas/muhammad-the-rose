@@ -16,6 +16,8 @@ Kur'an'da Rahmân ve Rahîm kavramlarının açık tanımları bulunmaz.
 
 Farklı mushaflar bulunmaktadır.
 
+Muhammed ismi Kur’an’da yalnızca dört kez geçer.
+
 Anlamı güvenilir biçimde belirlenemeyen metinlerden hareketle Allah hakkında tasavvur oluşturmamak gerekir.
 
 Sonuç: Kur’an dil açısından kullanışsızdır.
