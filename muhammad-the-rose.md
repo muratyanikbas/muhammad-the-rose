@@ -34,7 +34,7 @@ Kur'an'da melodik veya şarkı benzeri bir şekilde okunması doğrudan emredilm
 
 ## Kadın düşmanlığı
 
-İslam dininin öğretileri, yorumları ve tarihsel uygulamalarıyla ilişkilendirilen.
+İslam dininin öğretileri, yorumları ve tarihsel uygulamalarıyla ilişkilendirilen kadın düşmanlığı.
 
 ## Mekke
 
