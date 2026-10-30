@@ -32,6 +32,10 @@ Eğer Allah, bugün Kur'an olarak adlandırılan metnin kıyamete kadar geçerli
 
 Kur'an'da melodik veya şarkı benzeri bir şekilde okunması doğrudan emredilmemektedir. Peki, bu emri kim ortaya koymuştur?
 
+## Kadın düşmanlığı
+
+İslam dininin öğretileri, yorumları ve tarihsel uygulamalarıyla ilişkilendirilen.
+
 ## Mekke
 
 Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir. Öyleyse Allah'ın elçilerinin ayak bastığı her yerin kutsal sayılması gerekir. Peki, hangi elçilerin nerelerde faaliyet gösterdiğini nereden bilebilirler?
