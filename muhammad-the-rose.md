@@ -46,6 +46,8 @@ Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada
 
 ## Bütün öğretiler
 
+Bir elçinin yaşam biçimine uymak ve hayatını buna göre düzenlemek zorunda olduğu yanılgısı.
+
 ## Allah'ın konunun tamamına ilişkin açığa çıkardığı bilinmeyen gerçekler:
 
 ### Zogot
