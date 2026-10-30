@@ -44,6 +44,10 @@ Kur'an'da elçilerle ilgili olmayan olaylarda insanların isimleri neden geçmez
 
 Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir. Öyleyse Allah'ın elçilerinin ayak bastığı her yerin kutsal sayılması gerekir. Peki, hangi elçilerin nerelerde faaliyet gösterdiğini nereden bilebilirler?
 
+## Sorular
+
+Allah'ın emrini kimler kabul eder?
+
 ## Bütün öğretiler
 
 Bir elçinin yaşam biçimine uymak ve hayatını buna göre düzenlemek zorunda olduğu yanılgısı. Kur'an'da adı geçen diğer elçilerin hayatlarını bilmemeleri.
