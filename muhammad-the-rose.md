@@ -30,6 +30,8 @@ Eğer Allah, bugün Kur'an olarak adlandırılan metnin kıyamete kadar geçerli
 
 ### Kur'an metninin teganni ile okunması
 
+Kur'an metni, Muhammed'in yaşadığı ve faaliyet gösterdiği dönemde ortaya çıktığı için öncelikle incelenip değerlendirilmelidir. Muhammed ve arkadaşları bu metinleri nasıl kullandı?
+
 Kur'an'da melodik veya şarkı benzeri bir şekilde okunması doğrudan emredilmemektedir. Peki, bu emri kim ortaya koymuştur?
 
 Kur'an'da elçilerle ilgili olmayan olaylarda insanların isimleri neden geçmez?
