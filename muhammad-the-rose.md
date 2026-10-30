@@ -26,6 +26,6 @@ Sonuç: Kur’an dil açısından kullanışsızdır.
 
 ## Mekke
 
-Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir.
+Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir. Öyleyse Allah'ın elçilerinin ayak bastığı her yerin kutsal sayılması gerekir. Peki, hangi elçilerin nerelerde faaliyet gösterdiğini nereden bilebilirler?
 
 ## Allah'ın konunun tamamına ilişkin açığa çıkardığı bilinmeyen gerçekler:
