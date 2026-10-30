@@ -24,6 +24,8 @@ Anlamı güvenilir biçimde belirlenemeyen metinlerden hareketle Allah hakkında
 
 Sonuç: Kur’an dil açısından kullanışsızdır.
 
+Eğer Allah, bugün Kur'an olarak adlandırılan metnin kıyamete kadar geçerli olmasını ve Muhammed'den sonra yaşayan bütün insanların bu metne yönelmesini istemiş olsaydı, onun dilinin, kelimelerinin ve ifadelerinin doğru anlaşılabilmesi için gerekli açıklamaların yazılı olarak korunmasını sağlayabilirdi. Elçisine, metnin anlamlarını açıklayan bilgileri ve ilgili tarihsel olayları ayrıntılı biçimde yazıya geçirmesi için talimat verebilirdi. Allah'ın bunu sağlamaya gücü yeterdi. Bugün metnin bazı ifadelerinin anlamı ve tarihsel bağlamı konusunda farklı yorumların bulunması, bu bilgilerin neden herkesin aynı şekilde anlayabileceği açıklıkta korunmadığı sorusunu doğurmaktadır. Buradan hareketle, söz konusu metnin başlangıçtan itibaren bütün insanlara ulaşmasının ve herkes için bağlayıcı olmasının amaçlanmadığı düşünülebilir. Bu düşünce, Allah'ın bütün insanlara tek bir dinî metin üzerinden yaşam biçimi dayatmadığı ve onların kaderlerini bu metne uyup uymamalarına göre önceden belirlemediği ihtimalini de gündeme getirir.
+
 ## Mekke
 
 Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada bir elçinin faaliyet gösterdiği görülmüş diye kutsal hâle gelmez; ona kutsallık atfeden, insanlar ve onların dinleridir. Öyleyse Allah'ın elçilerinin ayak bastığı her yerin kutsal sayılması gerekir. Peki, hangi elçilerin nerelerde faaliyet gösterdiğini nereden bilebilirler?
