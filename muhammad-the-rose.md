@@ -46,7 +46,7 @@ Mekke kutsal bir toprak değildir. Bir şehir, ülke ya da başka bir yer, orada
 
 ## Bütün öğretiler
 
-Bir elçinin yaşam biçimine uymak ve hayatını buna göre düzenlemek zorunda olduğu yanılgısı.
+Bir elçinin yaşam biçimine uymak ve hayatını buna göre düzenlemek zorunda olduğu yanılgısı. Kur'an'da adı geçen diğer elçilerin hayatlarını bilmemeleri.
 
 ## Allah'ın konunun tamamına ilişkin açığa çıkardığı bilinmeyen gerçekler:
 
