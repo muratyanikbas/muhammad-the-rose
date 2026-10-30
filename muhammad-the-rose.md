@@ -32,6 +32,8 @@ Eğer Allah, bugün Kur'an olarak adlandırılan metnin kıyamete kadar geçerli
 
 Kur'an'da melodik veya şarkı benzeri bir şekilde okunması doğrudan emredilmemektedir. Peki, bu emri kim ortaya koymuştur?
 
+Kur'an'da elçilerle ilgili olmayan olaylarda insanların isimleri neden geçmez?
+
 ## Kadın düşmanlığı
 
 İslam dininin öğretileri, yorumları ve tarihsel uygulamalarıyla ilişkilendirilen kadın düşmanlığı.
