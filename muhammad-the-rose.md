@@ -56,6 +56,8 @@ Allah'ın emrini kimler kabul eder?
 
 Bir elçinin yaşam biçimine uymak ve hayatını buna göre düzenlemek zorunda olduğu yanılgısı. Kur'an'da adı geçen diğer elçilerin hayatlarını bilmemeleri.
 
+## Kur’an’a, diğer tüm kaynaklara ve bunların içeriklerine neden uymak zorunda olmadığımız:
+
 ## Allah'ın konunun tamamına ilişkin açığa çıkardığı bilinmeyen gerçekler:
 
 ### Zogot
