@@ -42,6 +42,8 @@ Kur'an'da melodik veya şarkı benzeri bir şekilde okunması doğrudan emredilm
 
 Kur'an'da elçilerle ilgili olmayan olaylarda insanların isimleri neden geçmez?
 
+Muhammed yeni kelimeler türetmiş ve mevcut kelimelere yeni anlamlar yüklemiş midir?
+
 ## Kadın düşmanlığı
 
 İslam dininin öğretileri, yorumları ve tarihsel uygulamalarıyla ilişkilendirilen kadın düşmanlığı.
